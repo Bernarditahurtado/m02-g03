@@ -4,3 +4,4 @@ Sofía Ochoa
 Colomba Gonzalez I.
 M.José Ibáñez
 Susana Ovalle
+Manuela Donoso
